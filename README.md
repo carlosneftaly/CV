@@ -1,2 +1,2 @@
-# CV
-Carlos N. Lozano's Curriculum Vitae
+# Carlos N. Lozano's Curriculum Vitae
+
